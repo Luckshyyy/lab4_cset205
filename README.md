@@ -2,6 +2,3 @@
 
 
 ## lakshita gulati 
-##  medha srivastava
-## palak siwal
-## kuch bhi
